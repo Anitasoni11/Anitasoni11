@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate in writting about nft.
 
 <!---
-Anitasoni11/Anitasoni11 is a ✨ special ✨ repository because its `README.md` 
+Anitasoni11/Anitasoni11 is a ✨ special ✨ repository because its `README.md
